@@ -1,11 +1,11 @@
 <h2 align="center">
-    「 ❣️ʙᴀᴅ ᴍᴜsɪᴄ ❣️ 」
+    「 ❣️nikki music ❣️ 」
 </h2>
 
 </h2>
 <img src="https://user-images.githubusercontent.com/73097560/115834477-dbab4500-a447-11eb-908a-139a6edaec5c.gif">
 
-<img src="https://readme-typing-svg.herokuapp.com?color=FF0000&width=420&lines=❤️+ʙᴀᴅ+😍+sʜɪᴢᴜ+🌸">
+<img src="https://readme-typing-svg.herokuapp.com?color=FF0000&width=420&lines=❤️+sᴀɪᴍ+😍+ɴɪᴋᴋɪ+🌸">
 
 </h2>
 <img src="https://user-images.githubusercontent.com/73097560/115834477-dbab4500-a447-11eb-908a-139a6edaec5c.gif">
